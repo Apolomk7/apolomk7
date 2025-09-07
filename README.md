@@ -1,4 +1,4 @@
-## Olá eu sou Gabriel_Honorato, me chamam de APOLO!
+## Olá eu sou Gabriel_Honorato, mas se quiser me chama de ASTRAL!
 
 ** Meu Hobby favorito é ultrapassar o limite e amanhecer os dias de tanto estudar! **
 
